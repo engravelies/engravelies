@@ -4961,3 +4961,853 @@ I'm sorry. I'm sorry, everyone. Can we stop here?
 I'm not making a major life decision during a production number!
 All right. Take ten, everybody. Wrap it up, guys.
 I had virtually no rehearsal for that.
+in: Yaoi, Adonis Otogari, Souma Kanzaki, Normal
+Adosou
+SIGN IN TO EDIT
+AdoSou
+
+Rhythm Link´s Compassion and Elegance
+other names
+アド颯, 아도소마, 阿多颯 OR 颯アド, 소마아도 ,颯阿多
+characters
+Kanzaki Souma, Otogari Adonis
+
+Contents
+1	Overview
+2	Trivia
+3	Quotes
+4	Story Walkthrough:
+4.1	Reminiscence＊Each of their Crossroads (07/31 2017)
+4.1.1	(Chapter(s): Crowd 3, Crowd 4)
+4.2	Main Story !
+4.2.1	(Chapter(s): Revolution 20)
+4.3	Scout! Palace of the Ocean King (4/14 2016)
+4.4	Offering◆The Easter of the Undead (3/31 2018)
+4.5	Falling Cherry Blossoms＊Wisteria Purple of May (4/30 2017)
+4.6	Scout! Pool (07/15 2018)
+4.7	Class Live (4/30 2017)
+4.8	Scout! Greek Legends (11/29 2015)
+4.9	CN Exclusive! Firefly’s Night
+4.9.1	(Chapter(s): 4 and 5)
+4.10	Photoshoot! Warm Athletics (09/26 2017)
+4.11	Challenge! Tanabata Festival (7/15 2015)
+4.11.1	(Chapter(s): Chapter 2)
+5	Writer´s opinion
+5.1	References:
+Overview
+“I’m happy. This is my first time in this country making a proper friend.”
+
+AdoSou consists on the relationship between Adonis Otogari from UNDEAD and Souma Kanzaki from Akatsuki.
+
+Adonis and Souma met during Crossroad, in Crowd 3, when Souma helped Adonis find his way since he had lost his way. When Adonis met Souma, he was truly fascinated by him, going to the extents of almost taking his shirt off for Souma to sign it. After that, Souma became Adonis´ first proper friend he had made in Japan.
+
+Adonis and Souma have demostrated to have a very close relationship, spending a lot of time together and showing care and worry about eachother. Despite UNDEAD and Akatsuki being considered as rivals, Adonis and Souma have taken part in multiple stories together, both enjoying having the opportunity of working together.
+
+ADVERTISEMENT
+Trivia
+In Extra Stage ~Destruction × Road~, Adonis hugs Souma right after shaking hands with him for the first time.
+Meanwhile, in the game, Adonis blushes a couple of times while talking to Souma for the first time, which is quite the rare sight.
+First Years
+First year AdoSou
+
+Souma used to prepare bentos for Adonis.
+In Greek Legends, Souma prepares a character bento for Adonis.
+They both like to watch the birds outside the window together during their time in the classroom.
+Adonis helps Souma by teaching him English, speaking slowly so he can understand better. Souma, on the other hand, helps Adonis by teaching him Japanese.AdoSou queen and king
+Queen and King of Spades
+
+When Souma started the circle of Kaori, nobody showed up at first, so he waited until Adonis showed up and joined. They decided to perform a tea ceremony then.
+During Colored Flower Cards, Souma wanders off topic while talking to Anzu and ends up talking to her about Adonis.
+They run together every morning.
+Adonis and Souma always hang out together after school.
+Whenever there is something that Adonis doesn´t understand, he asks Souma.
+They both struggle with technology, such as cell phones.
+They usually eat lunch together under the shade of the trees.
+During Choco Fes, Adonis recieves chocolates from Souma.
+During an interview, every UNDEAD member is asked who, outside of UNDEAD, do they think has a body that gives off a ´sex appeal´, to which Adonis responds: "It is Kanzaki. Because he is skilled at martial arts, his movements are beautiful and elegant. That is why I use him as a reference."
+In the Enstars annivesary set of cards, Adonis is the Queen of Spades and Souma is the King of Spades.
+
+AdoSou
+Adonis and Souma
+
+Quotes
+Fufufu. It suits you so well, Adonis-dono. Really, you are so good looking anyone could fall for you. - Souma Kanzaki
+D-do you mind if I take a picture of us with this camera? I am sorry if this sounds rude, but I want to show it to everyone in my homeland! - Adonis Otogari
+Fufu. We are faitly close on the attendance sheet, hence why I am blessed to be paired with you often for daily duties. We have a good relationship where we compensate what the other lacks... Adonis-dono 𝅘𝅥𝅮 -Souma Kanzaki
+Oops. I was fascinated by Kanzaki´s movements and could not even make a start for it. - Adonis Otogari
+It is without question that I also personally wish to engage in practices related to "Chocolat Fes" together with Adonis-dono - Souma Kanzaki
+As expected, Kanzaki´s performance in anything is lovely. Even though he is just jumping from one log to another, there is gracefulness to it. - Adonis Otogari
+It is pleasant that this school has a lot of vegetation. At lunch break, I take a meal with Adonis-dono in the shades of the trees...𝅘𝅥𝅮 - Souma Kanzaki
+I am sorry. I was in the middle of track club practice, but I heard Kanzaki´s name being spoken, so... I just ran up without thinking. - Adonis Otogari
+Adonis-dono is one of my few numbered friends. I shall traverse trough fire or water if Adonis-dono requested it! I would like you to speak to me of anything, without hesitation. - Souma Kanzaki
+Kanzaki. Thank you for this happy moment...𝅘𝅥𝅮 - Adonis Otogari
+Certainly, if it is you, Adonis-dono, I do not mind. - Souma Kanzaki
+It is a request from no other than Adonis-dono. Out of consideration, I shall withdraw my sword.
+Let´s do our best together, Kanzaki - Adonis Otogari
+Fufu... For me, Adonis-dono, you are my one and only dearest friend. It can only be natural that I would wish for your birthday to be a day you will remember. - Souma Kanzaki
+Kanzaki, you also have some strenghts that I do not possess. I will be in your care from today onwards as well. - Adonis Otogari
+I had overheard that on Valentine´s Day, it was given to gift chokoreito to those who look after you or are intimate with; thus, I had given my seniors in Akatsuki and you these treats, as a present. - Souma Kanzaki
+Fufu. I am sorry for making you come along with me, Kanzaki. On top of guiding me here you also gave me your autograph... No matter how much I thank you, it would not be enough. - Adonis Otogari
+But of course, I accept it with open arms. Please take care of me from here on out as well 𝅘𝅥𝅮 - Souma Kanzaki
+Kanzaki. It is true for that ninja run as well, but your movements are always so pretty. - Adonis Otogari
+You have a handsome yet impressive physique, I could even say I am envious 𝅘𝅥𝅮 - Souma Kanzaki
+Kanzaki is there too. He is looking straight ahead, watching me with that clear gaze of his like always. I will hold my head high. I don´t want anything dirty reflecting in those beautiful eyes. - Adonis Otogari
+Mhm, this is why Adonis-dono is so strong. Although I have heard it many times already, hearing it yet again makes me feel such emotion 𝅘𝅥𝅮 - Souma Kanzaki
+Last night, Kanzaki invited me to view the cherry blossoms with him. The atmosphere was different from when I saw them during the daytime, it was beautiful. - Adonis Otogari
+Kanzaki, I love your dances, so I will really enjoy it. - Adonis Otogari
+Kanzaki. Everyone wants to make memories with you. Of course I feel the same way. You are my precious friend after all. - Adonis Otogari
+Watch over me, friend I met in a distant land. My singing voice full of love will surely carry over borders and even oceans. I will make certain of it, at the risk of my own life. - Adonis Otogari
+Story Walkthrough:
+Reminiscence＊Each of their Crossroads (07/31 2017)
+(Chapter(s): Crowd 3, Crowd 4)
+Main Story !
+(Chapter(s): Revolution 20)
+Scout! Palace of the Ocean King (4/14 2016)
+Offering◆The Easter of the Undead (3/31 2018)
+Falling Cherry Blossoms＊Wisteria Purple of May (4/30 2017)
+Scout! Pool (07/15 2018)
+Class Live (4/30 2017)
+Scout! Greek Legends (11/29 2015)
+CN Exclusive! Firefly’s Night
+(Chapter(s): 4 and 5)
+Photoshoot! Warm Athletics (09/26 2017)
+Challenge! Tanabata Festival (7/15 2015)
+(Chapter(s): Chapter 2)
+AdoSou kiss
+AdoSou kissing (real footage)
+
+Writer´s opinion
+I think their dynamic is absolutely lovely yet I don´t see a lot of people talking about them, so I wrote this. I have to say that I am the biggest Adosou stan (I actually was their best man at their wedding I swear), so I couldn´t bear to see how empty this page was and I decided to write all this instead of making homework (success).
+
+AdoSou is such a sweet ship, both caring and loving the other in such a gentle way. They can have some traits that can oppose the other, but this is one of the things that make Adosou be what it is. In conclusion, stan Adosou, love Adosou, read Adosou stories.
+
+- Robin, aka themikejimaagenda, aka daily.adosou (you should check my page out I love Adosou)
+
+p.d.: I apologize for all my mistakes, I shall now use the excuse that English is not my first language.
+
+Also I will try to update this as I read every Adosou interaction I find.
+
+AdoSous
+References:
+- @hourlyadosou on Twitter
+
+Categories
+Community content is available under CC-BY-SA unless otherwise noted.
+14 comments
+
+User avatar
+Monavity
+·
+1/14/2023
+"Kanzaki is there too. He is looking straight ahead, watching me with that clear gaze of his like always. I will hold my head high. I don´t want anything dirty reflecting in those beautiful eyes" which story is this quote from?
+
+User avatar
+Bangteez
+·
+12/24/2022
+adosou the only ship ever
+
+User avatar
+Monavity
+·
+12/20/2022
+The best ship fr. They are so underrated despite having so many moments together
+
+User avatar
+Adosoukogaism
+·
+11/28/2022
+They're SOOOOOOO <3 also the editor,, kudos to you it wasnt this beautiful the last time i visited this wiki aaaa food for adosou nation in this eyesore of a wiki
+
+User avatar
+MidoriLoverFrFr
+·
+11/18/2022
+I adore them sm omg <33
+
+User avatar
+Possumzinho
+·
+11/17/2022
+Thanks to the person who wrote the story walktrough as well 
+
+
+
+User avatar
+BredSniffles
+·
+10/31/2022
+I LVOE THEM SO MUCH 
+
+
+
+THEIR PRECIOUS AS FUCK WTF !!!!!!!!!
+
+User avatar
+Incognico25
+·
+10/20/2022
+ htheyre in love actually, im happyele
+
+ also bless whoever wrote this page <3
+
+User avatar
+Possumzinho
+·
+10/22/2022
+Blessings to you too happyele thanks for making them real 
+
+
+
+User avatar
+Incognico25
+·
+10/22/2022
+ thank you as well u r carrying the adosou nation on ur back rn with ur contributions to this wiki
+
+User avatar
+Soumaluvr
+·
+2/9/2022
+ this is canon i actually wrote enstars
+
+User avatar
+Mahnishmah
+·
+9/12/2021
+Best enstars ship i dont make the rules
+
+Definitelyizuki
+·
+7/3/2021
+Adosou  is  so  good  unironically,,  they  understand  each  other  so  well  n  would  go  out  of  their  way  to  help  better  each  other,,,  at  the  same  time  they  also  just  have  a  lot  of  fun  tgt  n  dont  judge  each  other  tt_tt
+
+User avatar
+Quarrelfes
+·
+5/6/2021
+True
+
+User avatar
+Mxstiiq
+·
+12/11/2020
+in love
+
+User avatar
+Yomiohoho
+·
+10/6/2020
+yeah
+
+Recent Images
+
+Popular Pages
+
+Rinniki
+
+Izumako
+
+Adosou
+
+Narumika
+
+Reinagi
+Fan Feed
+More Ensemble Stars Shipping Wiki
+1
+Rinniki
+2
+Izumako
+3
+Adosou
+
+Ensemble Stars Shipping Wiki
+Ensemble Stars Shipping Wiki
+
+Chiakana
+Ensemble Stars Shipping Wiki
+
+Nazuna Nito
+The English Ensemble Stars Wiki
+
+Aira Shiratori
+The English Ensemble Stars Wiki
+
+Characters
+The English Ensemble Stars Wiki
+
+Underachievers
+The English Ensemble Stars Wiki
+
+Nagisa Ran
+The English Ensemble Stars Wiki
+
+Shu Itsuki
+The English Ensemble Stars Wiki
+EXPLORE PROPERTIES
+Fandom
+Muthead
+Futhead
+Fanatical
+FOLLOW US
+OVERVIEW
+What is Fandom?
+About
+Careers
+Press
+Contact
+Terms of Use
+Privacy Policy
+Global Sitemap
+Local Sitemap
+THE UNOFFICIAL ENSEMBLE STARS!! ENGLISH WIKI
+
+> DISCOGRAPHY
+> STORY
+> GAMEPLAY
+BASIC
+MUSIC
+Ensemble Stars!! (あんさんぶるスターズ！！) is a multimedia project, originally released as a Japanese mobile idol training game on May 1st, 2015. As of March 16th, 2020, the app has two versions: Ensemble Stars!! Basic, the idol-training game, and Ensemble Stars!! Music, the rhythm game. Both versions of the game have different gameplay styles, but otherwise share the same story, characters, and cards.
+
+In Ensemble Stars!, the player is introduced to Yumenosaki Private Academy, which hosts an all-male idol training course that has a long history of producing talented idols.
+
+Once the Ensemble Stars! school year ends, Ensemble Stars!! begins. Both students and graduated idols join an entertainment agency aggregate known as Ensemble Square, and they must learn to forge their own paths in the vast world of entertainment!
+
+GETTING STARTED
+Music General Guide
+Basic General Guide
+Characters
+Story
+Rules & Guidelines
+CONTRIBUTE
+See Available Contributions for details on how you can help!
+Want to send a correction or suggestion? Contact the wiki staff here.
+
+We also have a Discord server! Remember to check the guidelines before joining!
+OFFICIAL LINKS
+Official page favicon2 Website JP ☆ EN ☆ CN ☆ KR ☆ TW
+Twtitter Favicon Twitter JP ☆ EN ☆ KR ☆ TW
+Youtube Favicon Youtube JP ☆ EN ☆ KR
+Weibo Favicon Weibo
+UNOFFICIAL LINKS
+Twtitter Favicon ENG Updates
+Reddit ENG Subreddit
+Flag of Japan.svg JP ES! Wiki
+Flag of Japan.svg JP Basic Wiki
+Flag of Japan.svg JP Music Wiki
+Baidu favicon Baidu
+CAMPAIGNS
+SUGOROKU Trip! The BGM is Number Eight Banner
+Event! SUGOROKU Trip! The BGM is Number Eight
+Ends in Basic: 1d 20h 26m 11s
+Ends in Music: 20h 26m 11s
+
+BIBLION (Scout) Banner
+Scout! BIBLION
+Ends in: 6d 13h 26m 11s
+
+Koga Feature Scout 2
+Scout! Koga Feature Scout 2
+Ends in: 2d 13h 26m 11s
+
+Rainbow-Colored 7 Week Campaign Logo
+Rainbow-Colored 7 Week Campaign
+Ends in: 34d 13h 26m 11s
+
+Shinobu Sengoku Birthday 2022 Banner
+Birthday Party in: 22h 26m 11s
+
+BIRTHDAYS
+Mayoi Ayase Circle
+Mayoi Ayase
+June 6th
+Shinobu Sengoku Circle
+Shinobu Sengoku
+June 9th
+Tetora Nagumo Circle
+Tetora Nagumo
+June 15th
+Subaru Akehoshi Circle
+Subaru Akehoshi
+June 22nd
+Sora Harukawa Circle
+Sora Harukawa
+July 1st
+AFFILIATES
+Ensemble Girls Wiki
+Chinese Ensemble Stars Wiki
+I-chu Wiki
+Shining Live Wiki
+Yume 100 Wiki
+IDOLiSH7 Wiki
+Princess Connect! Re:Dive
+
+FANDOM
+FAN CENTRAL
+BETA
+GAMES
+ANIME
+MOVIES
+TV
+VIDEO
+WIKIS
+START A WIKI
+MOVIES • MARVEL
+Spider-Punk Rocks Above the Rest of the Spider-Verse
+The release of Spider-Man: Across the Spider-Verse saw a ton of interest in all things Spidey at the Marvel wiki page, but a Punk won the day.
+Matt Fowler 17h
+MOVIES • HONEST TRAILERS
+Honest Trailers | 1986's Transformers: The Movie
+We've got The Touch on Honest Trailers, as we travel back to 1986 -- or is that 2005 when it's set? -- to look at the first ever Transformers movie.
+Eric Goldman 17h
+MOVIES • COMICS • MARVEL
+How The Spot Became Across the Spider-Verse's Unlikely Villain
+SPOILERS! If you've seen Across the Spider-Verse, check out what the team behind the film had to say about evolving The Spot from his goofy history.
+Eric Goldman 1d
+MOVIES • COMICS • MARVEL
+9 Standout Easter Eggs in Across the Spider-Verse
+Across the Spider-Verse is packed with fun Easter eggs, but a few of them - from notable cameos to a Spectacular variant - are particularly cool.
+Eric Goldman 5d
+MOVIES • COMICS • MARVEL
+Gwen Stacy’s Weird Path from Corpse to Clone to Beloved Superhero
+Gwen Stacy is a central hero in the Spider-Verse movies, which is impressive considering she also died decades ago.
+Blair Marnell May 31
+MOVIES • HONEST TRAILERS
+Honest Trailers | John Wick Chapter 4
+You know what rules? When a movie series just keeps being awesome. Such is the case with John Wick and his never-ending battle...
+Fandom Staff May 31
+MOVIES • COMICS • MARVEL
+Spider-Verse Cast on Who has the Best Spidey Costume
+Spider-Man filmmakers and stars Shameik Moore, Hailee Steinfeld, & Jake Johnson discuss the new film and rate the best look in the Spider-Verse.
+Eric Goldman May 30
+MOVIES • SCI-FI • STAR WARS
+Saying Goodbye to Star Wars: Galactic Starcruiser
+Disney's ambitious Star Wars experience was just too expensive. Which is too bad, because it was really amazing.
+Eric Goldman May 27
+MOVIES • DISNEY • ANIMATION
+Which Disney Animated Movie Will Get a Live-Action Remake Next?
+With Little Mermaid as the latest Disney classic to go from animation to live-action, we look at several other candidates for future adaptations.
+Jess Bacon May 25
+MOVIES • COMICS • DC
+Origin Story: Aquaman’s Black Manta
+Aquaman's arch enemy is getting more of a spotlight than ever, so we're taking a look back at his long history.
+Blair Marnell May 23
+MOVIES • ANIME
+‘Spirited Away’: The Many Faces of No-Face
+We look to unravel the secrets behind No-Face, one of Studio Ghibli's most iconic characters.
+KC Nichols May 23
+MOVIES
+Fast X Makes it Clear John Cena is Better When He’s Funny
+Jakob Toretto led the pack in pageviews on our Fast & Furious wiki this weekend, while a ton of other characters from the past also had your interest.
+Matt Fowler May 23
+MOVIES • DISNEY
+New Little Mermaid Cast on the Most Popular Song from the Original
+Why one particular song is forever popular, picking who should get new songs for the live-action version, and the challenges of playing merpeople.
+Eric Goldman May 22
+MOVIES • HONEST TRAILERS • FANTASY
+Honest Trailers | Dungeons & Dragons: Honor Among Thieves
+Let's get Honest about Dungeons & Dragons: Honor Among Thieves, as Hollywood once more tries to connect to the D&D appeal... and nails it!?
+Fandom Staff May 17
+MOVIES
+The Fast and the Furious: Tallying Every Fight, Race and “Family”
+Hit the NOS as we examine just how many times some of the Fast & Furious franchise's most famous tropes occur.
+Matt Fowler May 17
+MOVIES • DISNEY • ANIMATION
+The Challenge of Bringing Fire to Life in Pixar's Elemental
+The team at Pixar on the unique challenges of turning elements into their new film's characters.
+Eric Goldman May 16
+MOVIES
+Fast & Furious: Just Who Exactly Does Dom Consider Family?
+Dominic Toretto cares about his family... A LOT. But given how many characters are now in the Fast series, we're examining just what he means by that.
+Blair Marnell May 15
+MOVIES
+11 Characters Who Should Return to the Fast & Furious Series
+Dominic Toretto's ever-growing family could still use some more backup. Here's some friends (and foes) from the past who could return to the series.
+Eric Goldman May 11
+MOVIES • COMICS • MARVEL
+Guardians Vol. 3's Big Debut Sparks Fan Interest in High Evolutionary and Phyla
+The big opening for Guardians 3 brought a lot of views to the Marvel and MCU wiki pages for both new and returning characters.
+Matt Fowler May 10
+TV • MOVIES • COMICS
+What You Need to Know About Star Wars' High Republic Era So Far
+With a new animated series and the upcoming live-action The Acolyte both set in the High Republic era, here's a primer on this portion of Star Wars.
+Bryan Young May 4
+MOVIES • HONEST TRAILERS
+Honest Trailers | Se7en
+Welcome to the city that never... stops being rained on. And the movie that first proved how good David Fincher is at telling serial killer stories.
+Fandom Staff May 3
+MOVIES • COMICS • MARVEL
+Guardians of the Galaxy Vol. 3 Cast on Making an MCU Movie With a lot of Goo
+Karen Gillan, Pom Klementieff, Chukwudi Iwuji, and Will Poulter on delivering a satisfying finale, possibly working with James Gunn at DC and more.
+Eric Goldman May 2
+MOVIES • COMICS • MARVEL
+How Star-Lord Went From Marvel Obscurity to MCU Leading Man
+The unlikely path Peter Quill took from a mostly forgotten comic book character to a central part of the beloved Guardians of the Galaxy series.
+Blair Marnell May 1
+MOVIES
+The Hunger Games Filmmakers’ Real Life Inspiration for the Prequel’s Setting
+With The Ballad of Songbirds and Snakes trailer out now, the filmmakers discuss moving the story 64 years before Katniss' time.
+Eric Goldman Apr 27
+MOVIES • COMICS • MARVEL
+Origin Story | Guardians of the Galaxy Vol. 3’s High Evolutionary
+Before he makes his big screen debut, we're looking back at where the genetical manipulator came from and how he could be used in the MCU.
+TJ Dietsch Apr 26
+MOVIES • COMICS • DC
+The Flash’s New Trailer Underlines the Consequences of the Flashpoint Storyline
+The comic's Flashpoint storyline has become a pivotal moment for The Flash himself and the DC Universe and the movie looks to continue that.
+Blair Marnell Apr 26
+MOVIES • HONEST TRAILERS • HORROR
+Evil Dead Rise Raises Fans’ Interest for Both New Faces and Classic Characters
+With the new film opening, we found fans exploring all corners of the 42 year old franchise on the Evil Dead wiki, from Ash to more recent additions.
+Matt Fowler Apr 25
+MOVIES • COMICS • SPIDER-MAN
+Kraven the Hunter is Rated R But Will it Reflect its Spider-Man Comics Origins?
+At CinemaCon, the first footage from Kraven the Hunter was shown, as the film's R rating was revealed. But how much has changed from the comics?
+Blair Marnell Apr 25
+MOVIES • HORROR
+Evil Dead Rise Has a Notable Army of Darkness Connection
+Evil Dead Rise's director on his approach to the franchise and how he used a specific scene in Army of Darkness for inspiration.
+Eric Goldman Apr 19
+MOVIES • HONEST TRAILERS • DC
+Honest Trailers | Shazam! Fury of the Gods
+It's the impending end of the DCEU as we know it and Shazam might not feel so fine. Join us for an Honest look at the Fury of the Gods.
+Fandom Staff Apr 18
+MOVIES • COMICS • MARVEL
+10 Weird Spider-Man Variants We Want To See in Across the Spider-Verse
+From a Spider-Man made of Spiders to one that battles with Twinkies, we look at some of the Spideys we'd like to see on the big screen.
+Eric Frederiksen Apr 18
+MOVIES • HORROR
+The History of Evil Dead’s Necronomicon
+With Evil Dead Rise bringing the Deadites back, we're opening the book at the center of the series, the Necronomicon, to investigate its origins.
+Blair Marnell Apr 17
+MOVIES • ANIMATION • ANIME
+Makoto Shinkai on the Inspiration Behind Suzume and Miyazaki Comparisons
+The Suzume director discusses how animation is viewed differently in the West compared to in Asia and how he measures success.
+Kat Moon Apr 14
+MOVIES • HONEST TRAILERS
+Honest Trailers | Avatar: The Way of Water
+James Cameron is back, which means it's time to get wet! Take an Honest Trailers look at a sequel 13 years in the making.
+Fandom Staff Apr 11
+MOVIES • GAMES • NINTENDO
+Super Mario Movie Fans Crown Princess Peach as Their Champion
+The Super Mario Bros. Movie made a ton of money this weekend, while our Mario wiki found many seeking out info on Peach, Lumalee, Spike (!) and more.
+Matt Fowler Apr 10
+MOVIES • SCI-FI • STAR WARS
+Star Wars Lore That Could Be Key to James Mangold’s Dawn of the Jedi Movie
+James Mangold's Star Wars movie will take place 25,000 years before the Skywalker Saga, but there are established elements it could still include.
+Bryan Young Apr 10
+MOVIES • GAMES • NINTENDO
+This Ain’t No Game: Mario’s History in TV and Movies
+With the new animated Super Mario Bros. movie here, we're looking back at the previous adaptations of the plumber turned Bowser-fighter.
+Blair Marnell Apr 6
+MOVIES
+Fans Are Excited By Dungeons & Dragons’ New Characters
+With the release of the new D&D film, several of its brand new characters are finding a ton of interest on Fandom's Forgotten Realms Wiki.
+Matt Fowler Apr 3
+MOVIES • COMICS • DC
+Blue Beetle Has a Bigger History Than You Might Think
+With the first trailer for Blue Beetle revealed, take a look back at the character's long history, which spans multiple companies and identities.
+Blair Marnell Apr 3
+MOVIES
+John Wick: Chapter 4 Keeps The High Table Mysterious and Fans Wanting More
+The John Wicki got plenty of attention thanks to the release of Chapter 4, as interest keeps growing in the shadowy group behind everything.
+Matt Fowler Mar 29
+MOVIES
+Dungeons & Dragons Creatures and their Real Life Origins and Inspirations
+With Honor Among Thieves bringing D&D back to movie theaters, take a look at the real life roots of some of these fearsome creatures.
+Jess Bacon Mar 29
+MOVIES • COMICS • DC
+Batman Forever Hot Toys Figures Vividly Bring Batman and Robin Back to the 90s
+We take a look at the recently released Hot Toys figures for Batman Forever, which bring the Dynamic Duo back to an era filled with neon and nipples.
+Eric Goldman Mar 29
+MOVIES • DISNEY • ANIMATION
+Pixar’s Elemental Tells the Story of True Opposites Attracting
+Fandom paid a visit to Pixar to get an early look at their next movie and learn about its looks at elements come to life.
+Eric Goldman Mar 28
+MOVIES
+Keanu Reeves Talks John Wick: Chapter 4 SPOILERS and Ending
+SPOILER WARNING: Keanu Reeves and John Wick: Chapter 4 director Chad Stahelski discuss the film's conclusion.
+Eric Goldman Mar 27
+MOVIES • FANTASY
+D&D Movie Cast on Their Real Life Game and the Best Character Class
+The team behind Dungeons & Dragons: Honor Among Thieves discuss how playing a game of D&D together helped set the the tone of the film.
+Emma Fyffe Mar 27
+MOVIES
+Books, Animation and More: Dungeons & Dragons’ History Beyond the Game
+With Dungeons & Dragons: Honor Among Thieves arriving, we're taking a look back at previous adaptations of D&D.
+Carolyn Page Mar 24
+MOVIES
+Crash Course | ‘The Pope’s Exorcist’
+Inspired by the tales of real-life possessions from the Chief Exorcist of the Vatican
+Fandom Staff Mar 24
+MOVIES • DISNEY
+What You'll Find in Disney World's New Toy Story-Themed BBQ Restaurant
+How the new addition to Walt Disney World's Toy Story Land expands upon a plot point from Toy Story 2 (and delivers tasty brisket along the way).
+Eric Goldman Mar 23
+MOVIES • HONEST TRAILERS
+Honest Trailers | Everything Everywhere All At Once
+Honest Trailers takes a look at the most recent Best Picture winner, Evwhich gave its cast some overdue recognition - and also featured an evil bagel!
+Eric Goldman Mar 21
+MOVIES
+The Rules of John Wick’s World of Assassins
+With John Wick: Chapter 4 here, we're diving into all the rules revealed to date about a complex -- and notably large -- world of contract killers.
+Blair Marnell Mar 21
+MOVIES • STREAMING • HORROR
+M3GAN’s Writer and Star on the Film’s Breakout Success and Upcoming Sequel
+With an unrated version of M3GAN now available, Violet McGraw and Akela Cooper discuss why it struck a chord and where they want to go in M3GAN 2.0.
+Eric Goldman Mar 21
+MOVIES • DISNEY
+Walt Disney World’s New TRON Ride Puts Guests on a Lightcycle
+Fandom paid a visit to Walt Disney World to check out the new TRON attraction and learn what's next for the franchise, a third movie included.
+Eric Goldman Mar 20
+MOVIES
+Keanu Reeves on John Wick’s State of Mind and the Challenges of Chapter 4
+The cast and director of John Wick: Chapter 4 on the franchise's ever-growing popularity, what drives John, and pulling off the new film's stunts.
+Eric Goldman Mar 20
+MOVIES • COMICS
+Shazam! Cast and Director on the Significance of Wonder Woman’s Cameo
+Zachary Levi, his Shazam! Fury of the Gods costars, and director David F. Sandberg on what it means to have the iconic superhero appear in their film.
+Eric Goldman Mar 18
+MOVIES
+Analyzing the Baba Yaga: The Psychology of John Wick
+With John Wick: Chapter 4 here, we had a clinical psychologist analyze the motivations behind the infamous assassin (and loving dog dad).
+Drea Letamendi Mar 17
+MOVIES • HONEST TRAILERS
+Honest Trailers | The Goonies
+We're going all the way back to 1985 this week for a Gen X childhood staple. But does The Goonies actually hold up? Let's get Honest about it...
+Fandom Staff Mar 15
+MOVIES • HORROR
+Scream VI Directors Spoiler Chat: The Killer, Survivors, and Cool Hidden Cameos
+The directors of Scream VI have an in-depth chat with Fandom about the big decisions made in the film and where things could go next.
+Eric Goldman Mar 14
+MOVIES • HORROR
+Scream VI Has Fans Searching Past, Present, and (Possible) Future Ghostfaces
+The Scream wiki saw a lot of traffic thanks to Scream VI's release, including pages for deceased characters and one we still haven't met!
+Matt Fowler Mar 13
+MOVIES • HORROR
+Scream VI Spoilers: The Killer Speaks!
+SPOILER WARNING! Fandom spoke to several key Scream VI cast members about some of the key reveals and where the film left off.
+Eric Goldman Mar 13
+MOVIES • COMICS • DC
+Who Are the Most Powerful Members of the Shazam Family?
+The Shazam! Fury of the Gods cast ponder who's the most powerful, discuss the film's new trio of Goddess villains, and ponder the franchise's future.
+Eric Goldman Mar 13
+MOVIES • HORROR
+Scream VI Stars on Who Should Play Their Stab Movie Counterparts
+The Scream VI cast ponder who could play their characters in a Stab version, plus Melissa Barrera and the directors on Sam Carpenter's state of mind.
+Eric Goldman Mar 8
+MOVIES • HONEST TRAILERS • STREAMING
+Honest Trailers | The Oscars 2023
+Honest Trailers is getting you prepped for the Academy Awards, with our take on all ten of the Best Picture nominations.
+Fandom Staff Mar 7
+MOVIES
+How Adam Driver Will Fight to Survive Prehistoric Earth in ‘65’
+65 million years ago, humans arrived on Earth...
+Lou Francis Mar 7
+MOVIES • HORROR
+Scream's ‘Stab’ Franchise: A Definitive History (of Fake Movies)
+From Tori Spelling to Rian Johnson, here's everything you need to know about the fictional horror franchise embedded within the 'Scream' series.
+Lon Harris Mar 7
+MOVIES
+John Wick: Chapter 4 Poster Spotlights John’s Inner Baba Yaga
+Orlando Arocena's poster -- one of a larger Artist Series for the film -- depicts John Wick and what makes him tick.
+Eric Goldman Mar 2
+MOVIES • COMICS • MARVEL
+Quantumania Filmmakers Spoiler Chat: Discussing the Ending and Kang's Next Step
+Ant-Man and the Wasp's creative team dig into SPOILERS on how the film ended, the divisiveness of M.O.D.O.K., and the plans for much more Kang.
+Eric Goldman Feb 24
+MOVIES • COMICS • MARVEL
+Kang Conquered the Marvel Wiki Multiverse After His Quantumania Debut
+With Quantumania now in theaters, a ton of folks flocked to Fandom's Marvel Wikis to look up all things Kang... and there sure are a lot of Kangs!
+Matt Fowler Feb 21
+MOVIES • HONEST TRAILERS
+Honest Trailers | Bloodsport
+Travel back with us to a time when the glorious studio known as Cannon gifted the world with the Kumite!
+Fandom Staff Feb 21
+MOVIES • COMICS • MARVEL
+One Weird Villain: The History of M.O.D.O.K.
+We're taking a look back at the origins and background of Quantumania's oh-so memorable M.O.D.O.K., from comics to animation to the MCU. 
+Blair Marnell Feb 18
+MOVIES • COMICS • MARVEL
+The MCU's Kang Could Connect to Fantastic Four and X-Men
+The 'Quantumania' villain's long and complex Marvel history includes notable ties to Mr. Fantastic and even a big X-Men character.
+Blair Marnell Feb 16
+MOVIES • HONEST TRAILERS
+Honest Trailers | Titanic
+If Titanic can get a 25th anniversary re-release in theaters, than Honest Trailers can revisit Titanic!
+Eric Goldman Feb 15
+MOVIES • COMICS • DC
+The Flash Trailer Has Fans Batty for Michael Keaton’s Batman Return
+In the wake of The Flash's first full trailer, the DC wikis at Fandom are having a big Bat-moment, but Supergirl's flying high as well.
+Matt Fowler Feb 14
+MOVIES • COMICS • MARVEL
+Could Ant-Man Ever Lead the Avengers?
+Ant-Man and the Wasp: Quantumania's director and producer weigh in on the results of our fan poll and discuss bringing Kang into the MCU.
+Eric Goldman Feb 13
+MOVIES • COMICS • MARVEL
+What It Would Take To Actually Make a Pym Particle
+With Ant-Man and the Wasp: Quantumania here, a real life expert in quantum fields weighs in on what the discovery of the Pym Particle would mean.
+Jess Bacon Feb 9
+MOVIES • HONEST TRAILERS • STREAMING
+Honest Trailers | Black Panther: Wakanda Forever
+Check out our Honest look at an MCU movie that had a lot to tackle (so maybe it didn't need that Thunderbolts setup stuff).
+Eric Goldman Feb 8
+MOVIES • DISNEY • ANIMATION
+Disney’s Big 100th Anniversary Includes Mickey Mouse Leveling Up at Disneyland
+Disney's 100 has led to a lot at Disneyland, but perhaps the most notable addition is Mickey Mouse finally getting his own cool and modern ride.
+Eric Goldman Feb 6
+MOVIES • COMICS • MARVEL
+Quantumania’s Cassie Lang's Long Journey to Becoming a Superhero
+Looking back at the comics history of Scott Lang's daughter and how it could influence her MCU future.
+Blair Marnell Feb 3
+MOVIES • DC
+Expect Some Wild Events in the DCU’s Supergirl: Woman of Tomorrow Film
+We dive into the comic book that is serving as inspiration for the new Supergirl film and explain why it has plenty of cinematic potential.
+TJ Dietsch Feb 2
+TV • MOVIES • COMICS
+The DCU Slate Has Fans Seeking out Info on The Authority and Creature Commandos
+Now that we have the first big slate for the new DCU, based on the traffic at Fandom's DC wikis, some the more obscure characters have fans intrigued.
+Matt Fowler Feb 1
+MOVIES • HORROR
+Why Creepy Cabins Are Such a Great Horror Setting
+M. Night Shyamalan and Fandom's Horror Movie wiki comment on a classic horror location, as Shyamalan discusses his new film, Knock at the Cabin.
+Eric Goldman Feb 1
+MOVIES • COMICS • DC
+How The Brave and the Bold Can Use Robin to Launch the Bat Family into the DCU
+The new DC Universe version of Batman will include a Robin who connects to many other pieces of Batman history that might be included in the story.
+Blair Marnell Feb 1
+MOVIES • COMICS • STREAMING
+Wakanda Forever: Examining the Psychology of Shuri, the Black Panther
+With Wakanda Forever now on Disney+, we had a clinical psychologist dig into the evolving psychology motivating Shuri. 
+Drea Letamendi Feb 1
+MOVIES • HORROR
+Honest Trailers | M3GAN
+She is the moment. She is the epitome of dance. She may well murder you. And she is our new Honest Trailer.
+Fandom Staff Feb 1
+MOVIES • HONEST TRAILERS
+Honest Trailers | Snakes on a Plane
+Return to 2006 and a movie that people had so much fun with online, the studio was convinced it would be a huge morbin hit.
+Fandom Staff Jan 24
+MOVIES • COMICS • MARVEL
+Origin Story: ‘Guardians of the Galaxy Vol. 3’s Adam Warlock
+Looking back at the complicated history of the new 'Guardians 3' character, from his Fantastic Four intro to wielding an Infinity Stone.
+TJ Dietsch Jan 19
+TV • MOVIES • STREAMING
+The Penguin Will Have His "Scarface Moment" in 'The Batman' Spinoff
+'The Batman' director Matt Reeves looks back on his 2008 found footage hit 'Cloverfield' and looks ahead to his 'Penguin' series with Colin Farrell.
+Eric Goldman Jan 17
+MOVIES • COMICS • MARVEL
+M.O.D.O.K.-Mania Soars Following New ‘Ant-Man’ Trailer
+While fans are still excited for Kang's arrival, the latest 'Quantumania' trailer has many focused on the MCU debut of a guy with a really big head.
+Matt Fowler Jan 11
+MOVIES • COMICS • DC
+Young Superman Stories James Gunn Could Take Inspiration From
+With James Gunn writing a script focused on Superman in his early days, we look at some previous Man of Steel tales that could hint at what to expect.
+Blair Marnell Jan 10
+MOVIES
+23 Movies We’re Excited for in 2023
+2023 brings new installments for series like Creed, Saw, and Mission: Impossible, the arrival of Barbie, and the likely end of the DCEU as we know it.
+TJ Dietsch Jan 6
+MOVIE REVIEWS • MOVIES
+'M3GAN' Review: She's Got Some Killer Dance Moves
+Is M3GAN the best bestie ever? We review the new killer doll horror movie.
+YouTube Jan 5
+MOVIES • HORROR • SCI-FI
+‘M3GAN’ Made Star Allison Williams Scrap Her AI Assistant
+Allison Williams describes the film as “the Connor family origin story” and it shows AI gone bad – but is there a market for a real-life M3GAN?
+Kim Taylor-Foster Jan 4
+TV • MOVIES
+Fandom’s 10 Most Searched for Characters of 2022
+Which characters of 2022 across all of movies and TV were fans heading to Fandom to learn all about? Check out our Top 10 most searched-for list!
+Jess Bacon Dec 30, 2022
+TV • MOVIES • GAMES
+The Most Searched for Villains on Fandom
+From The Boys' Black Noir to Nope's Jean Jacket, prepare to discover what heinous pop culture villains you've all been looking up this year.
+Jess Bacon Dec 29, 2022
+TV • MOVIES • COMICS
+Fandom’s 10 Most Searched for DCEU Characters of 2022
+Which DCEU characters do you think fans were most interested in learning more about in 2022? Look no further, we got you!
+Jack Francis Dec 28, 2022
+TV • MOVIES • COMICS
+Fandom’s 10 Most Searched for MCU Characters of 2022
+Newcomers like Moon Knight joined veterans like Scarlet Witch and a returning Daredevil among those who MCU fans were looking up info for the most.
+Matt Fowler Dec 27, 2022
+MOVIE REVIEWS • MOVIES
+Glass Onion: A Knives Out Mystery | Review!
+Check out Kim Taylor-Foster and Eric Goldman's review of the second 'Knives Out' movie, now streaming on Netflix. 
+YouTube Dec 23, 2022
+MOVIES • HORROR
+Fandom’s 10 Most Searched for Horror Characters of 2022
+New 'Halloween' and 'Scream' installments helped contribute a lot to this list, but some surprise characters from the past got your attention to.
+Matt Fowler Dec 22, 2022
+MOVIES • HORROR
+How ‘Halloween Ends’ Approached the Design of Michael Myers’ Mask
+Check out an exclusive clip from the new 'Halloween Ends' 4K disc, exploring how Michael Myers' famous mask evolved for the finale film.
+Eric Goldman Dec 22, 2022
+MOVIES
+Which Movies Got the Biggest Fandom Wiki Jump in 2022?
+Sometimes, when a movie releases, the associated Fandom wiki experiences unprecedented numbers of visitors: here's our Top 10 of 2022.
+Jack Francis Dec 21, 2022
+MOVIES • SCI-FI
+‘Avatar: The Way of Water’s Arrival Causes Big Interest in the Sully Family
+The 'Avatar' sequel has given a huge boost to Fandom's Avatar wiki, with a ton of interest around one Sully kid in particular...
+Blair Marnell Dec 20, 2022
+MOVIES
+TOP WIKIS
+PIXAR WIKI
+HARRY POTTER WIKI
+WOOKIEEPEDIA
+MARVEL CINEMATIC UNIVERSE
+THE DISNEY WIKI
+DC EXTENDED UNIVERSE WIKI
+THE ONE WIKI TO RULE THEM ALL
+HUNGER GAMES WIKI
+TWILIGHT SAGA WIKI
+JAMES BOND WIKI
+JURASSIC PARK WIKI
+GOJIPEDIA
+HONEST TRAILERS
+Honest Trailers | 1986's Transformers: The Movie
+Honest Trailers | John Wick Chapter 4
+Honest Trailers | Dungeons & Dragons: Honor Among Thieves
+Honest Trailers | The Mandalorian Season 3
+Honest Trailers | Se7en
+Spider-Punk Rocks Above the Rest of the Spider-Verse
+Honest Trailers | 1986's Transformers: The Movie
+How The Spot Became Across the Spider-Verse's Unlikely Villain
+9 Standout Easter Eggs in Across the Spider-Verse
+Gwen Stacy’s Weird Path from Corpse to Clone to Beloved Superhero
+FOLLOW US:
+   
+ABOUT CAREERS CONTACT DOWNLOAD iOS APP  DOWNLOAD ANDROID APP
+EDITION: US
+Fandom
+EXPLORE PROPERTIES
+Fandom
+Muthead
+Futhead
+Fanatical
+OVERVIEW
+What is Fandom?
+About
+Careers
+Press
+Contact
+Terms of Use
+Privacy Policy
+Global Sitemap
+Local Sitemap
+COMMUNITY
+Community Central
+Support
+Help
+Do Not Sell or Share My Personal Information
+ADVERTISE
+Media Kit
+Contact
+FOLLOW US
+FANDOM APPS
+Take your favorite fandoms with you and never miss a beat.
+Fandom
+## I CANT DO THIS ANYMORE
