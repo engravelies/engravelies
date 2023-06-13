@@ -1,2 +1,1 @@
-![](https://pbs.twimg.com/media/DuPoFUSUwAAV5fq?format=jpg&name=small)
-readcarrdreadcarrdread..card........................pls.................................
+![](https://pbs.twimg.com/media/DGL2FYKVwAAdqSr?format=jpg&name=medium)
