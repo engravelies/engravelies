@@ -1,2 +1,1 @@
-
-![](https://www.pngmart.com/files/7/Bengal-Tiger-Transparent-Background-372x279.png)
+[![Untitled539-20240528211248.png](https://i.postimg.cc/J0V1vgtH/Untitled539-20240528211248.png)](https://postimg.cc/CB7TfcGw)
