@@ -2,4 +2,4 @@
 
 ![](https://media.tenor.com/05_HsEc33NEAAAAi/swipe-up-arrow.gif)
 
-[rentry](rentry.co/oh-arthur)
+[rentry](https://rentry.co/oh-arthur)
